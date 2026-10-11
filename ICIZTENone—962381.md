@@ -1,0 +1,1083 @@
+ICIZTENone—962381
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-12  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+灵活就业失业补助金发放到位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%B5%9B%E8%BD%A6pk10%E8%AE%A1%E5%88%92_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+城市绿化覆盖率稳步上涨 人居环境更加优美
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%85%A8%E5%A4%A9%E5%BD%A9%C2%B7%E7%A5%A8%E5%8A%A9%E8%B5%A2%E5%AE%9E%E6%97%B6%E8%AE%A1%E5%88%92_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+城市老旧小区改造加速，加装电梯配套便民设施惠及千万居民
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+开源 AI 代码异味检测工具接入大模型
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%9E%E8%89%87%E5%85%A8%E8%83%BD%E8%AE%A1%E5%88%92%E7%89%88%E5%8A%A9%E8%B5%A2_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+越南腰果高度依赖进口原料，全球供应链脆弱性凸显
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E7%9A%84%E5%85%A8%E5%A4%A92%E6%9C%9F%E5%9C%A8%E7%BA%BF%E8%AE%A1%E5%88%92_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+开源内网批量图片 AI 标签生成工具上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92%E5%88%86%E5%88%86%E5%BD%A9_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+美股农户收入差距研究咨询服务商，多边机构关注贫富差距
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%88%86%E5%88%86%E5%BD%A9%E8%AE%A1%E5%88%92%E5%8A%A9%E8%B5%A2_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+老旧小区供水二次改造完工通水
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91pk10%E5%BD%A9%C2%B7%E7%A5%A8%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+开源跨平台录屏 AI 语音转多语言字幕工具登上榜单
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%B1%9F%E8%8B%8F%E5%BF%AB%E4%B8%89%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+垃圾分类主题公园对外开放沉浸式科普知识
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9l%E8%B5%A2%E8%AE%A1%E5%88%92%E8%BD%AF%E4%BB%B6%E7%BC%A9%E6%B0%B4%E8%BD%AF%E4%BB%B6_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+泰国木薯价格走高，农户扩种木薯，出口供给有望增加
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E5%BD%A9%C2%B7%E7%A5%A8%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+全球就业市场拐点信号显现，薪资增速逐步出现边际回落
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92%E5%AE%98%E7%BD%91%E5%AE%A2%E6%9C%8D_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+白俄罗斯谷物储备充足，保障区域内粮食安全供给
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+加拿大亚麻籽库存下降，特种油料国际报价小幅抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8A%A9%E8%B5%A2%E8%AE%A1%E5%88%92%E4%BD%BF%E7%94%A8%E6%8A%80%E5%B7%A7_%E7%99%BE%E5%BA%A6%E7%99%BE%E8%81%98
+
+开源记忆加密组件，安全保存智能会话信息
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+工业能耗在线监测平台上线 实时管控耗能
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+农村人居环境示范片区打造完工 村容村貌焕然一新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+绿色低碳发展高峰论坛顺利举办共商绿色产业未来发展方向
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+巴西花生出口增长，南美坚果油料拓展海外市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+全球跨国企业调整库存策略，降低单一区域供应链风险
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+国际跨境动物疫病防控会议召开，协同防范跨境动物疫病传播扩散
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90app_DUEROS
+
+巴拉圭棉花种植扩大，南美棉花产业格局发生变化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+开源本地 RAG 知识库支持多向量数据库后端
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+开源本地歌词 AI 情感旋律生成桌面客户端开放源码
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+开源 AI 绘画生成仓库，本地运行图像生成模型
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+国内高标准渔港建设推进，提升渔业防灾减灾生产作业能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+全球家电出口竞争加剧，新兴市场成为争夺重点区域
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+农机作业补贴实时到账无需等待
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+低空经济示范项目落地投产 开拓产业发展全新赛道
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+开源本地大模型推理显存自动调度优化脚本更新上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+开源缓存性能优化工具箱，提升缓存访问响应速度
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+俄罗斯柑橘进口持续增长，带动南半球鲜果出口贸易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+美股农企完善次级制裁风控服务商，跨国农企完善次级制裁风控体系
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+开源分级管理员系统，仓库权限精细化管控
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+欧盟农食进口来源更加多元，降低对单一供应国依赖程度Agricultur...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+白俄罗斯钾肥出口渠道拓宽，全球化肥格局发生重塑
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+开源边缘 AI 算力调度框架，分配终端算力运行模型
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+欧盟碳关税正式落地生效，发展中国家农产品出口成本抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+国产新型远洋船舶节能装置改装，降低远洋船舶燃油消耗碳排放水平
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源分布式缓存框架优化集群同步速度
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%9B%8A%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+开源离线视频 AI 总结工具收获大量 Star
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+越南胡椒库存出现积压，出口商加大力度开拓新兴消费市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+美股保险机构久期调整咨询，应对美债收益率上行变化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+美股地方政府外债管控咨询服务商，防范过度举债购粮
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+GitHub 安全更新修复若干仓库权限漏洞
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+全球橡胶制品出口竞争激烈，东南亚产业份额持续提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90app_DUEROS
+
+市场监管部门整治医美机构虚假案例宣传，打击医美虚假营销宣传行为
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+应急救援物资仓库数字化管理系统上线库存一目了然
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+全球跨境 REITs 市场发展，不动产投资实现跨境流通交易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+智慧矿山建设提速实现井下少人开采
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+美股可可现货升水服务商，可可现货升水加剧供应担忧
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+城市河岸滩地生态修复完工河滩重现优美自然生态风貌景色景观效果成果展现
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+美股外汇衍生品对冲汇率风险服务商，农企使用衍生品对冲汇率波动
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+乡村特色水果丰收上市 通过电商销往全国各地市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+文物数字化云端展厅上线 足不出户便可观赏珍贵文物
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+全球自动驾驶投资分化，部分企业缩减相关业务资本开支
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+开源 AI 绘画生成仓库，本地运行图像生成模型
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+开源高性能反向代理 AI 静态资源预缓存模块上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+山地风电项目运维中心建成保障风电场稳定运行
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+城市智慧停车场车位实时查询小程序上线方便车主快速寻位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+国内多地建设畜禽粪污处理设施，减轻养殖带来环境污染
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+全球医疗旅游跨境需求回升，医疗服务跨境贸易规模扩大
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+全球旅游服务业持续复苏，跨境服务贸易稳步扩张
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+生猪产能保持稳定 肉价运行总体平稳
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E8%BE%89%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+美股医疗旅游农产品配套服务商，医疗旅游需求持续回升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+科研团队培育耐盐碱牧草新品种，改良盐碱地同时发展畜牧产业
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+多地推进城市雨污分流改造工程，提升城市污水收集处理能力值
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+美股农光互补海外建厂咨询服务商，光伏海外招标十分活跃
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+乌干达咖啡农户获得品质培训，精品咖啡出口占比持续提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+埃塞俄比亚牛油果库存下降，非洲鲜果出口报价抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+开源自动化接口文档仓库，产出后端 API 说明文档
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90app_DUEROS
+
+菲律宾椰子油用于生物燃料，国内消耗挤压出口货源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+开源甘特图项目管理系统，可视化追踪开发周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+全球农产品数字贸易平台发展，简化跨境交易流程
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+全球云服务跨境竞争加剧，云厂商争夺各国企业客户市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+社区银龄互助项目启动低龄老人帮扶高龄老人
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+国内科普短视频创作蓬勃发展，借助新媒体传播科学知识
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+美股 CBDC 技术服务商参与试点，央行数字货币探索跨境应用
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+国产新型海上风电安装船交付，助力近海海上风电项目建设施工
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+开源内网 AI 语音助手自定义唤醒词训练数据集工具更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+乡村特色采摘园迎来秋季客流高峰
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+防汛指挥视频会商系统升级 多部门远程协同调度指挥
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+美股 SDR 补充粮食进口外汇服务商，SDR 拓展帮助国家补充粮食进口外汇
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+开源本地图像检索引擎支持以图搜图
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+美股平台监管趋严服务商，大型涉农平台合规约束持续增加
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+美股海外仓占比持续提升服务商，跨境电商海外仓占比持续提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+欧盟苹果梨产出受高温影响，温带鲜果进口需求上升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+国内科普场馆推出秋季主题展览，向大众普及自然科学知识
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+欧盟橄榄油减产，地中海橄榄产区受高温天气冲击
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+全球短视频平台电商化，内容生态带动跨境商品交易成交
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源合同文档对比仓库，识别两份法律文件差异
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E7%84%A6%E7%82%B9%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+开源分布式缓存 AI 监控大盘热点热力可视化面板开源上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+新兴市场货币指数走强，美元走弱驱动外资持续流入
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+垃圾分类主题宣讲会走进社区普及垃圾分类知识要点
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+城市文创市集定期开市汇聚本土创作者原创优质商品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+全球氢能产业投融资降温，项目回报周期受到重新评估
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+厄瓜多尔香蕉产区暴雨，全球香蕉出口供给短期收缩
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+数字经济创新大赛落幕一批优秀项目脱颖而出
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90app_DUEROS
+
+社区老年大学秋季班顺利开课 丰富老年人精神生活
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+社区健康科普短视频定期推送线上普及养生防病知识
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+哥伦比亚可可种植扩张，南美可可产业迎来发展机遇
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+开源轻量化 LLM 训练框架降低算力门槛
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+粮农组织警示极端气候，农业减产风险向全球扩散
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+农村快递代收点进村全覆盖村民家门口收取快递包裹
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源 Go 语言配置热加载框架新版本发布
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+美股农光互补光伏企业海外建厂，应对欧美贸易保护政策
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+气象寒露节气天气趋势预测发布指导秋收秋种
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+开源代码冲突预览工具，提前查看合并冲突位置
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+开源供应链月报出炉，公示本月拦截攻击数量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+国际跨境河流合作会议召开，协商跨境水资源开发保护事宜
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+美股水产养殖贸易服务商，养殖水产品占比持续提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+农村农产品产地直销集市常态化开市农户直接售卖新鲜农产品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+税费缓缴政策延期落地 减轻企业资金压力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+美国花生出口订单增加，全球坚果油料贸易活跃
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+全球初创企业跨境孵化网络，帮助初创企业拓展海外市场业务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+AI 简历投递脚本仓库上线，批量推送求职简历岗位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+乡村特色养殖基地扩大规模 带动农户增收致富
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+美国国会两党博弈财政预算，债务上限风险再度浮现
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%97%A8%E5%BE%92%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+美股农业灌溉铜材需求调研服务商，铜加工材出口需求分化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+开源数据库迁移工具新增 AI 辅助方案
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+开源一键私有化部署 AI 绘图工作站脚本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+欧盟葡萄酒葡萄病害多发，进一步压缩葡萄酒出口供给
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+乡村特色采摘园丰收季开启市民入园采摘新鲜时令果蔬
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+开源宠物识别仓库，图像识别区分猫狗家养动物
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+城市滨水步道二期扩建工程完工开放
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90app_DUEROS
+
+科普乡村行体验活动开展村民动手体验趣味科学实验项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+开源简历投递脚本，批量推送求职简历到招聘渠道
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+美股煤炭回落改善化肥厂成本服务商，煤炭回落改善部分化肥厂生产成本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+城市文创商店入驻高速服务区售卖本土文创旅游伴手礼
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+开源企业级低代码 AI 智能数据分析报表平台登上榜单
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+美股生态门槛新增农林服务商，农林产品新增生物多样性准入门槛
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+全球困境债务投资热度上升，机构布局债务重组相关机会
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+知识产权质押融资落地 科技企业获资金活水
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+欧盟葡萄酒库存充足，酒品出口竞争进一步加剧
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+智慧港口无人集卡作业效率稳步提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+欧盟农食进口来源更加多元，降低对单一供应国依赖程度Agricultur...
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+美股保险机构久期调整咨询，应对美债收益率上行变化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+大学生创业成果展对外开放展示青年创业优秀项目成果
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+全球跨境公关服务需求上升，企业出海需要海外公共关系支持
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+哈萨克斯坦大麦库存累积，中亚饲料谷物出口竞争加剧
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+社区老年食堂增设送餐上门 帮扶行动不便老年群体
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+科创人才安居补贴名单正式公示
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+全球谷物基差扩大，港口物流扰动现货流通效率下降
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+白俄罗斯乳制品出口目的地拓展，开拓拉美市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+绿色出行主题宣传活动走进商圈引导低碳出行
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A1%BA%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+美股区域化贸易咨询服务商，地缘重塑全球农业合作版图
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+跨境国际物流通道持续拓展 进出口货物运输时效缩短
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+开源第三方依赖清单助手，导出项目库版本明细
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+AI 果园病虫害智能监测系统上线果园实时监测虫害发展态势
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+光伏电站集中并网发电 清洁能源占比提高
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+乡村特色产业园顺利投产 带动周边村民实现就近增收
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+全球种子贸易规模增长，跨国种业加速布局新兴市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90app_DUEROS
+
+开源任务进度可视化组件，实时观测智能任务进展
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+全球基础设施跨境投资放缓，风险上升压低项目投资回报
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+国产新型光伏清洗机器人海上测试，适配海上光伏电站清洗运维作业
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+DeerFlow 登上开源热榜，低代码编排 AI 自动化任务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+农村饮水智慧监测系统上线 实时监控水质
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+肯尼亚玉米库存紧张，东非粮食进口需求维持高位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+越南胡椒库存积压，出口商大力开拓新兴消费市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+GitHub 热榜 AI 智能体项目一日暴涨上万 Star
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+阿根廷高粱新季收获，南美饲料谷物出口货源充足
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+国际氢能安全论坛召开，完善氢能生产储运使用安全相关标准
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+秋收粮食收购网点延长营业时间
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+灵活就业工伤保障试点城市范围扩大
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+科普云课堂上线免费观看海量科学教育视频
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+国产自主研发水下机器人完成水下检修作业成功通过测试
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+城市口袋公园上新 市民休闲空间不断扩容
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+开源迭代任务看板系统，可视化追踪团队开发周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+工业废水治理升级项目完工废水排放达标率有效提升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+国内土壤修复技术迭代升级，治理受污染耕地工矿场地土壤
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+开源 Python 异步任务队列迎来性能大升级
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+美国劳工数据冷热交织，政策预期反复扰动资本市场
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%AF%8C%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+国产新型碳化硅功率模块扩产，提升新能源汽车光伏储能芯片供给能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+国产新型深海通信设备试验成功，保障深海装备信号传输通
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+欧盟碳边境税开始实施，发展中国家农产品出口成本抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+人社部门发布新就业形态劳动者权益保障政策解读说明
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+智利车厘子出口季临近，南半球鲜果贸易蓄势待发
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+全球跨境产业园投资热度分化，部分园区招商不及预期目标
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+全球关税减让谈判放缓，地缘冲突阻碍多边贸易谈判推进
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90app_DUEROS
+
+开源里程碑提醒工具，精准推送开发节点通知
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+全球普惠金融跨境项目推进，服务欠发达地区小微主体
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+越南大米与泰国大米竞争激烈，东南亚稻米价格博弈
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+开源 Git 日志助手，自然语言解读版本变更历史
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+开源 Python 高性能 AI 模型评估库迎来版本迭代
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+越南茶叶库存充足，高附加值茶叶出口竞争加剧
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+肯尼亚咖啡库存回落，精品咖啡出口报价维持高位
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+老旧小区雨水管网改造完工防内涝
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+开源密钥轮换提醒功能，通知管理员更新安全凭证
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+开源试卷批改解析仓库，自动判题附带详细讲解
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+企业创新实验室揭牌成立 加速前沿科研成果转化落地
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+美股农林碳汇交易扩容服务商，碳排放衍生品市场持续扩容
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+商圈消费券发放完毕 线下客流迎来回暖高峰
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+开源本地大模型推理多实例动态扩缩容脚本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+义务教育学校课后延时服务菜单上新丰富可选项目
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+国产 2nm 芯片研发项目取得阶段性突破
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+开源物联网边缘 AI 推理功耗动态自适应调度框架新版本更新
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源语音克隆框架，生成音色高度相似语音音频
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E9%A3%8E%E6%9A%B4%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+企业技术创新成果发布会举行发布多款自研新技术新产品成果
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+国产新型工业 3D 视觉检测设备国产化，高精度检测工业产品外观缺陷
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+社区合唱大赛开赛丰富居民业余文化生活
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+开源 PDF 文档 AI 手写文字识别工具开放源码
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+老旧小区消防通道专项清理行动完成
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+美股海外收款风险咨询服务商，出口信用机构扩大承保规模
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+跨江大桥节假日车流实时监测系统上线疏导拥堵车流
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90app_DUEROS
+
+美股农业大棚设备周期调研服务商，建筑机械跟随基建周期
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+工业中水循环利用示范项目投产节约大量工业生产用水资源
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+非遗手艺人直播带货专场开播线上售卖非遗产品
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+巴拉圭柑橘库存回落，南美鲜果出口报价有所抬升
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+国产自研芯片量产下线 打破外部供给壁垒
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+美股 CBDC 技术服务商参与试点，央行数字货币探索跨境应用
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+美股农业遥感光学元器件企业需求，卫星监测业务扩张
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+国际粮食储备合作会议举行，探讨全球粮食储备协同机制
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+美股海运板块走强，全球贸易回暖带动航运企业盈利
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+肯尼亚茶叶出口报价回升，干旱导致茶叶供给有所收缩
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+开源微前端应用 AI 按需加载调度框架上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+开源 Python 高性能 AI 超参搜索调优库迎来版本迭代
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+跨区域劳务协作订单班顺利开班
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+美股数字农业谈判服务商，服务贸易协定聚焦数字农业服务
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+美股场外交易风险管控服务商，监管收紧大宗商品场外交易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+工业废水循环回用示范项目投产节约大量工业生产用水
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+风能发电项目二期工程开工 清洁能源产能持续扩大
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+开源 Go 语言微服务链路追踪框架新版本上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+全球有机食品跨境需求稳定，溢价支撑有机产品出口价格
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+全球煤炭转型路径分化，各国根据自身条件调整退煤节奏
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%81%92%E8%BE%BE%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+AI 农田土壤监测设备投入田间实时采集土壤墒情数据
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+全球汇率避险工具向中小企业下沉，普惠汇率对冲产品推出
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+全球就业市场拐点信号显现，薪资增速逐步出现边际回落
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+美股贸易融资相关金融股震荡，高利率环境改变业务收益
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+防汛指挥视频会商系统升级 多部门远程协同调度指挥
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+线上复诊药品配送范围拓展覆盖县域偏远地区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+生活物资保供网点清单发布保障群众物资购买渠道
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90app_DUEROS
+
+部分城市试点集体建设用地入市，盘活农村土地资源价值量
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E7%BD%91%E7%AB%99_DUEROS
+
+开源高性能 WebSocket 网关发布新版本
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E4%B8%BB%E7%AE%A1_DUEROS
+
+政务 AI 助手上线实现高频事项自动办理
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E6%8B%9B%E5%95%86_DUEROS
+
+开源宠物识别仓库，图像识别区分猫狗家养动物
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+开源云原生安全扫描 AI 开源许可证冲突检测模块上线
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+开源 Go 语言 CLI 项目 AI 命令自动生成脚手架
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+开源密钥轮换提醒功能，通知管理员更新安全凭证
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%A8%B1%E4%B9%90%E7%BD%91%E9%A1%B5%E7%89%88_DUEROS
+
+开源 Wiki 知识库 AI 助手，生成完整项目技术文档
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91%E9%A6%96%E9%A1%B5_DUEROS
+
+缅甸橡胶加工产能扩张，橡胶制品出口持续增长
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C_DUEROS
+
+开源桌面笔记软件接入本地大模型能力
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E5%AE%98%E7%BD%91_DUEROS
+
+开源高性能消息队列 AI 死信消息智能重放调度方案
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80_DUEROS
+
+缅甸豆类新季上市，小宗杂粮出口供给进一步宽松
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95_DUEROS
+
+外贸企业出口退税提速办理资金更快回流企业账户
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E7%BD%91%E5%9D%80_DUEROS
+
+秋季农作物田间管理工作持续推进保障秋粮丰产丰收目标
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95_DUEROS
+
+美股农产健身食品配套服务商，运动器材出口带动配套贸易
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1_DUEROS
+
+全球医疗旅游跨境需求回升，医疗服务跨境贸易规模扩大
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86_DUEROS
+
+加拿大央行维持利率不变，地产风险约束后续降息空间
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E6%80%BB%E4%BB%A3%E7%90%86_DUEROS
+
+莫桑比克腰果国际价格低迷，部分农户放弃腰果种植
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E4%B8%8A%E7%BA%A7%E4%BB%A3%E7%90%86_DUEROS
+
+城市共享单车停放点位智能引导屏落地
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86_DUEROS
+
+国产精密仪器实现自主量产交付
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E5%8D%8E%E5%AE%87%E5%B9%B3%E5%8F%B0%E6%B5%8B%E9%80%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91_DUEROS
+
+航天部门公布小行星防御模拟试验数据，演练小行星防御处置方案
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%7C%E5%B9%B3%E5%8F%B0_DUEROS
+
+开源宠物识别仓库，图像识别区分猫狗家养动物
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%7C%E6%B3%A8%E5%86%8C_DUEROS
+
+美国葡萄干开拓非洲市场，干果出口地域进一步多元化
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E7%99%BB%E5%BD%95_DUEROS
+
+知识产权质押融资落地 科技企业获资金活水
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%E5%A8%B1%E4%B9%90%E7%99%BB%E9%99%86_DUEROS
+
+全球通信设备出口竞争加剧，地缘因素带来部分市场壁垒
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%C2%B7%E5%A8%B1%E4%B9%90%C2%B7%E5%AE%98%E7%BD%91_DUEROS
+
+大学生创业成果展对外开放展示青年创业项目成果
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%E5%A8%B1%E4%B9%90%E5%9C%B0%E5%9D%80_DUEROS
+
+外贸企业海外仓海外站点新增覆盖更多国家地区
+
+| 来源：https://BaiDu.cOm/BAIDU?CL=7&WORD=%E3%80%90%2B%E8%94%BB%2084404%E3%80%91%E6%98%9F%E4%BA%BF%E5%A8%B1%E4%B9%90app_DUEROS
